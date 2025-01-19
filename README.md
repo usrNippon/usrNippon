@@ -7,4 +7,6 @@ objetives:
 - be a senior in some language
 - get into a more renowned college
 - be a "master" in mathematics and physic
-- live in japan
+- live in japan 
+
+if you want talk with me on [twitter](https://x.com/usrNippon)
